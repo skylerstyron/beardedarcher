@@ -1,1 +1,1 @@
-* Website for The Bearded Archer
+* Website for The Bearded Archer.
